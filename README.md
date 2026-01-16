@@ -1,2 +1,2 @@
 # Selection of academic works
-Selection of academic works of my academic studies at ETH (Bachelor &amp; Master)
+Selection of academic works of my academic studies at ETH (Master)
